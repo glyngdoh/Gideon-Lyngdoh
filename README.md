@@ -1,2 +1,1 @@
-Gideon Lyngdoh
-My Webpages
+Gideon Lyngdoh's webpages
